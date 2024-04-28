@@ -10,6 +10,8 @@
 
 **京东链接：https://item.jd.com/14553518.html**
 
+**淘宝链接：https://detail.tmall.com/item.htm?abbucket=17&id=787287468160&ns=1&spm=a21n57.1.item.6.7f40523c6FBUQm**
+
 ![Alt text](20240425-193440.jpeg)
 
 
